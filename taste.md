@@ -56,6 +56,8 @@ Not necessarily in order of preference
 -   a-ha - Take on me
 -   페퍼톤즈
 -   Sigrid
+-   버둥
+-   Mitski
 -   Darude - Sandstorm
 -   シャ乱Q - 上・京・物・語
 -   손담비 - queen
